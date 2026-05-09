@@ -1,4 +1,4 @@
-
+CorelDRAW for macOS ultimate Plugin - asset management and smart objects is the best CorelDRAW for macOS plugin, featuring asset management and smart objects. Safe, efficient, and
 
 
 
